@@ -15,6 +15,9 @@ Free to share. Free to ignore. Free to claim as your own mistake.
 
 > Embellish or detract as you please.
 
-Download the Gospel here
+Link to Gospel Preview:
+https://drive.google.com/file/d/13bnr92tPdQ_GENYQSRofd4nqX5K7XYIH/view?usp=sharing
+
+Download the Gospel here:
 
 [Skill_Issue_The_Degen_Gospel.pdf](https://github.com/user-attachments/files/19712956/Skill_Issue_The_Degen_Gospel.pdf)
