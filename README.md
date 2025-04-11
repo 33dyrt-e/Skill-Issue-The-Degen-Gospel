@@ -1,8 +1,8 @@
 # Skill-Issue-The-Degen-Gospel
-The PDF download to the Gospel
 [Skill_Issue_The_Degen_Gospel.pdf](https://github.com/user-attachments/files/19712815/Skill_Issue_The_Degen_Gospel.pdf)
 
 
+The PDF download to the Gospel
 A cracked mirror held up to craving, virtue, and self-inflicted contradictions.
 
 This is not a book. It’s a loop.
